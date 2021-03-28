@@ -1,1 +1,0 @@
-# Gacha_Fidvect_Skitty_for_windows
